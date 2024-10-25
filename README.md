@@ -1,1 +1,1 @@
-# bd6iua.github.io
+# bd6iua.ampr.org
